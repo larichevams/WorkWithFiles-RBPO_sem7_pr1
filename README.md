@@ -1,0 +1,1 @@
+# ConsoleApp36 — копия
